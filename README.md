@@ -19,7 +19,7 @@ All Units follows the orders they have programed for them/
 Inspiration: https://www.youtube.com/watch?v=CBawCe6du3w
 
 Setting/Story:
-Its a fuckin board game - go on pixlr oh that thing for making art. - Sam x Olivia
+Its a fuckin board game - go on pixlr oh that thing for making art.
 
 
 Game World/Style
